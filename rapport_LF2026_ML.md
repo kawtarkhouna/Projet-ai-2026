@@ -4,7 +4,7 @@
 
 ---
 
-**Établissement :** Université — Faculté des Sciences Économiques, Juridiques et Sociales  
+**Établissement :** L'école Nationale de Commerce et de Gestion - ENCG Settat  
 **Filière :** Gestion  
 **Spécialité :** Finance  
 **Groupe :** 3  
